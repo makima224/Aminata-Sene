@@ -1,0 +1,2 @@
+# Aminata-Sene
+Bioinformatician / Biomathematician 
